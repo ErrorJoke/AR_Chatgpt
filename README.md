@@ -18,5 +18,5 @@
 
 ### ⚙Support
 
-- [Discord Server](https://discord.gg/rvtsXKuf2P)
-- [YouTube channel](https://www.youtube.com/@MrToM23)
+- [Discord Server](https://discord.gg/utzX3rUCgm)
+- [YouTube channel](https://www.youtube.com/@-Abj)
